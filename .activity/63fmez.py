@@ -1,3 +1,0 @@
-# zigut0a2eb5wgvyw93aeiu570mjo6lwokmrpw8v4
-# 8xz84e9tifvwq
-# hiti0gzjuwtsd57hyp737dcdfok1x

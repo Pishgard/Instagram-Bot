@@ -1,4 +1,0 @@
-# duea78g83mfhe3z1ng2qwkhhkzqc
-# bmouq44owh3o89uzb3yqxlfzddztj416a1sa4y0s
-# mk0g6634c24wfever03ffnrr3a
-# go2gw32tet7ohha22ww4giemu66zz1yzh7d

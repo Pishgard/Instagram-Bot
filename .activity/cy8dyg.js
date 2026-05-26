@@ -1,4 +1,0 @@
-# au57sunefqwa7v7xc5eaiqk58at3m4zhza7hrd
-# 0s6wq34fmxtcl6hu5ttqsrmwq7yuvdode
-# 1xln451aqmnq1yeourr5mhtz5e88qrtm8h8
-# f123e1t6r3w1eu4n4rcfi7qdpiisd
